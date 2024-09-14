@@ -1,5 +1,7 @@
-## Hi there 👋
+## Anuja KC
 
+### Westcliff University, California, USA
+[Name](https://instagram.com/aasthak_)
 <!--
 **kcanuja12/kcanuja12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
