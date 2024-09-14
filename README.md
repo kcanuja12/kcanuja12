@@ -5,9 +5,8 @@
 
 ### Contact👇🏻:
 [Anuza KC](https://instagram.com/aasthak__)
+#### Fun facts about me:
 
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
