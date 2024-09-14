@@ -1,7 +1,7 @@
 ## Anuja KC💗
 
 #### Hi, I’m Anuza. I’m currently pursuing a Bachelor of Science in Information Technology (BSc IT). I’m passionate about technology and eager to apply my skills and knowledge in the IT field. I’m excited about learning new things and taking on challenges that help me grow both academically and professionally.
-<img src="C:\Users\HP\OneDrive\Pictures\viber_image_2024-09-14_14-25-19-735.jpg" alt="Myself">
+<img src="IMG_6409.heic" alt="Myself">
 
 ### Contact👇🏻:
 [Anuza KC](https://instagram.com/aasthak__)
