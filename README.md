@@ -1,6 +1,6 @@
 ## Anuja KC💗
-### Bio:
-Hi, I’m Anuza. I’m currently pursuing a Bachelor of Science in Information Technology (BSc IT). I’m passionate about technology and eager to apply my skills and knowledge in the IT field. I’m excited about learning new things and taking on challenges that help me grow both academically and professionally.
+
+### Hi, I’m Anuza. I’m currently pursuing a Bachelor of Science in Information Technology (BSc IT). I’m passionate about technology and eager to apply my skills and knowledge in the IT field. I’m excited about learning new things and taking on challenges that help me grow both academically and professionally.
 ### Westcliff University, California, USA
 #### Contact👇🏻:
 [Anuza KC](https://instagram.com/aasthak__)
