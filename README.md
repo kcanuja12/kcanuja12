@@ -1,7 +1,7 @@
 ## Anuja KC
 
 ### Westcliff University, California, USA
-[Name](https://instagram.com/aasthak_)
+[Anuza KC](https://instagram.com/aasthak__)
 <!--
 **kcanuja12/kcanuja12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
